@@ -8,3 +8,5 @@ Here are some ideas to get you started:
 - 🔭 I’m currently working on an app called Bridges to Prosperity, and it's a nonprofit that helps build footbridges in East African communities.
 - 📫 How to reach me: https://www.linkedin.com/in/ousbayaa/
 - ⚡ Fun fact: I have over 200 drawings of different characters
+- 🚘 I love the aesthetics of cars and the technology that comes with it
+- 🎥 Film/TV is a must have at least a few times a week!
